@@ -6,4 +6,4 @@ jhghjf
 hvdhgjvd
 bvdhjgs
 hvsh
-i M GOING TO PLAY MCD
+i am going to play poker AND MCD
